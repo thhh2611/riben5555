@@ -22,4 +22,4 @@
 
 点击任意入口，立即体验2025年超清不卡顿的日本AV盛宴！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben5555 ）</span> 
